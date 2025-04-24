@@ -16,4 +16,9 @@
 <img width="1710" alt="Screenshot 2025-04-24 at 6 58 34 PM" src="https://github.com/user-attachments/assets/4d97f4f7-e09b-405c-a075-04818c0d3b80" />
 <img width="1710" alt="Screenshot 2025-04-24 at 6 58 39 PM" src="https://github.com/user-attachments/assets/dbef195a-50e7-4c5d-9616-006a6f6c73b2" />
 
+    Task 1
+<img width="1710" alt="Screenshot 2025-04-24 at 8 38 14 PM" src="https://github.com/user-attachments/assets/c9d9ecc8-00fc-4768-9d89-e964b7902adf" />
+<img width="1710" alt="Screenshot 2025-04-24 at 8 38 21 PM" src="https://github.com/user-attachments/assets/805e7bcd-e731-4b34-a706-f784af37dee1" />
+<img width="1710" alt="Screenshot 2025-04-24 at 8 38 32 PM" src="https://github.com/user-attachments/assets/f1b71de7-97a7-4f7b-bd3d-b4b3ac3920e0" />
+<img width="1710" alt="Screenshot 2025-04-24 at 8 38 48 PM" src="https://github.com/user-attachments/assets/a70cf0c8-9a42-41de-82b3-c8b3d1c8bb96" />
 
