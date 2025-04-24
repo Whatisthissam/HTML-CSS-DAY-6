@@ -22,3 +22,13 @@
 <img width="1710" alt="Screenshot 2025-04-24 at 8 38 32 PM" src="https://github.com/user-attachments/assets/f1b71de7-97a7-4f7b-bd3d-b4b3ac3920e0" />
 <img width="1710" alt="Screenshot 2025-04-24 at 8 38 48 PM" src="https://github.com/user-attachments/assets/a70cf0c8-9a42-41de-82b3-c8b3d1c8bb96" />
 
+    Homework-Day-6
+<img width="1710" alt="Screenshot 2025-04-24 at 9 24 10 PM" src="https://github.com/user-attachments/assets/9542aad4-1806-4b69-a2a9-c7c89aff738b" />
+<img width="1710" alt="Screenshot 2025-04-24 at 9 24 17 PM" src="https://github.com/user-attachments/assets/c9428131-35d3-4708-9c10-52121f9cbbce" />
+<img width="1710" alt="Screenshot 2025-04-24 at 9 24 23 PM" src="https://github.com/user-attachments/assets/617d0e66-c353-4db9-b9c1-58534a7a462c" />
+
+    Section's
+<img width="1710" alt="Screenshot 2025-04-24 at 9 24 38 PM" src="https://github.com/user-attachments/assets/ecb3e2c4-313b-4683-9923-b1c608bda0f6" />
+<img width="1710" alt="Screenshot 2025-04-24 at 9 24 43 PM" src="https://github.com/user-attachments/assets/7729b9a4-4c65-4791-803a-2ac13145808b" />
+
+
